@@ -1,1 +1,1 @@
-ChatStorys github!!
+ChatStorys Organization profile 
